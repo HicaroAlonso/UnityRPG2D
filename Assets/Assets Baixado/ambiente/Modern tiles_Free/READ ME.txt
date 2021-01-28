@@ -1,0 +1,7 @@
+Hi, thank you for downloading the free version!
+
+This version has around 3% of material of the full asset
+
+---> THIS VERSION HAS NO LICENSE, SO YOU ARE ONLY ALLOWED TO PRIVATELY USE IT <----
+
+Consider buying the complete version (1.20$) if you like the asset :)
